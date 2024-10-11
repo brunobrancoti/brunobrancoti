@@ -1,2 +1,2 @@
-## OLlá ! Eu sou Bruno Branco TI 👋
+## OLá ! Eu sou Bruno Branco TI 👋
 
